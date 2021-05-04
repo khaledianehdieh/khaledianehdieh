@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Ehdieh Khaledian
+- 👀 I’m interested in finding new insights from seemingly nothing data
+- 📫 How to reach me: ehdiehkhaledian at gmail dot com
